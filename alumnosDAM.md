@@ -6,7 +6,7 @@ La profe
 DAVID RESINO ROJO
 Cristofer Fernández Fernández
 
-Alvaro.Escribano
+Alvaro.Escribano  -Usuario: Alvaro970
 
 Adrian Sanchez - S21815
 
