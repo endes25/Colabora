@@ -17,8 +17,12 @@ MARCO CALVO MÉNNDEZ USUARIO: Crossover970
 
 MARCOS ASENSIO HERNÁNDEZ - Marcos5784
 
-=======
-David Cuzuban - davidcuzuban
+JESUS LAZARO LOPEZ - JesusLazaroAvellaneda
 
 Sergio Romero - SergioRomeroOfficial
 
+=======
+David Cuzuban - davidcuzuban
+
+=======
+Alejandro Galan - Aleegalan06
