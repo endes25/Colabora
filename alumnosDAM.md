@@ -19,7 +19,10 @@ MARCOS ASENSIO HERNÁNDEZ - Marcos5784
 
 JESUS LAZARO LOPEZ - JesusLazaroAvellaneda
 
+Sergio Romero - SergioRomeroOfficial
+
 =======
 David Cuzuban - davidcuzuban
 
+=======
 Alejandro Galan - Aleegalan06
