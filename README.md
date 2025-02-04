@@ -1,14 +1,4 @@
-Modificado por Paloma
-Modificado por Alvaro
-Modificado por Marcos
-Modificado por David Cuzuban
-EDITADO PRACTICA 3
-# Colabora
-Practica colaborando
-modifico readme
 
-
-Modifico el archivo
 
 # EntornosDesarrollo2023-24
 Repositorio del módulo Entornos de Desarrollo
