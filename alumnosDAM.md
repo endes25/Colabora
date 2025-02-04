@@ -23,11 +23,13 @@ Sergio Romero - SergioRomeroOfficial
 
 Juan Antonio Fernández - JuanAntonio120
 
-=======
+
 David Cuzuban - davidcuzuban
 
-=======
+
+Paloma Sánchez - paloma-prog
+
 Alejandro Galan - Aleegalan06
 
-=======
 Raul Gonzalez Gallego - RaulGonz11
+
